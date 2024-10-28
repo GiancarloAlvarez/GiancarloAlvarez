@@ -24,7 +24,7 @@ My name is Giancarlo ALvarez Jorge , I'm from Dominican Republic
 
 
 ##SKILLS
-![image](https://github.com/user-attachments/assets/4d24d87c-d498-4b3a-a9f1-f26c081980cf)
+
 
 
 
